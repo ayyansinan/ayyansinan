@@ -1,4 +1,4 @@
-## hello im a roblox developer
+## hello
 
 my timzone is est
 
